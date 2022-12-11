@@ -11,7 +11,7 @@
 **GitGub** [Kristina-sinichka](https://github.com/Kristina-sinichka)
 
 ### About me
-I am disciplined, initiative, stress-resistant, optimistic, responsible, punctual. My main life goal is seif-development. I have two years of work experience as a communications engineer. I tend to learn new things.
+I'm 26 years old. I am disciplined, initiative, stress-resistant, optimistic, responsible, punctual. My main life goal is seif-development. I have two years of work experience as a communications engineer. I tend to learn new things.
 
 ### Education
 *BELARUSIAN STATE UNIVERSITY OF TRANSPORT, GOMEL*
